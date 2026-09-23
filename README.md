@@ -2,3 +2,4 @@
 
 
 no idea
+#hai aku dari siswa satu/A
